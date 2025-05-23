@@ -4,7 +4,7 @@ In today’s digital-first healthcare world, word-of-mouth and referrals are no 
 
 If your appointment slots aren’t filling up like they used to, chances are your online visibility is the problem — not your clinical skills.  
 
-This is where a Doctor Marketing Agency steps in.  
+This is where a [doctor marketing agency](https://www.intelliusmedical.com/) steps in.  
 
 An experienced Doctor Marketing Agency doesn’t just run ads. It creates a comprehensive, data-backed strategy to bring high-intent patients into your funnel every week. 
 
